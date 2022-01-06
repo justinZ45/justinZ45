@@ -8,5 +8,4 @@
 - 🤔 I’m looking for help with learning new programming languages.
 - 💬 Ask me about current projects I am working on.
 - 📫 How to reach me: Email -- justinzaluk@gmail.com | LinkedIn -- https://www.linkedin.com/in/justinzaluk
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I enjoy outdoor activities!
